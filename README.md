@@ -1,2 +1,6 @@
-# trying-assignment-again-
-week 3
+COURSERA ASSIGNMENT GIT/GIT
+
+GOOGLE COURSE
+
+WEEK 3
+AFTER FAILING IN FIRST TRY:)
